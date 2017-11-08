@@ -1,6 +1,6 @@
 # Coups de Marseault
 
-Laurent Marseault utilise une certaine manière de de raconter des histoires et concevoir des accroches de manière drole, mais qui gratte ou ça fait mal. C'est rigolo, mais peut être en même temps grave, permet de se moquer de nous crever l'abscès, tout en allant la où ça fait mal grace à l'humour.
+Laurent Marseault utilise une certaine manière de raconter des histoires et concevoir des accroches de manière drole, mais qui gratte ou ça fait mal. C'est rigolo, mais peut être en même temps grave, permet de se moquer de nous crever l'abscès, tout en allant la où ça fait mal grace à l'humour.
 
 
 Inspiré de l'approche interprétation du patrimoine (https://fr.wikipedia.org/wiki/Interpr%C3%A9tation_du_patrimoine)
